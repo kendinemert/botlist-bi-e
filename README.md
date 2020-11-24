@@ -1,0 +1,2 @@
+# gelismisbotlisttrdeilk
+TRDE İLK BOTLİST
